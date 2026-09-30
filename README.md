@@ -1,0 +1,2 @@
+# premium-barn-frame-001-barn-frame-raising-community-b
+Stop herding volunteers with clipboards and sticky notes. If your community barn raising is a blur of confusion about who's on which bent, when to lift, and where the mortises go, this template replaces chaos with a single source of truth.  The Barn Frame Raising Community Bent Assembly Manager turns your Notion workspace into a real-time command c
